@@ -1,2 +1,0 @@
-# Haydenwhynot.github.io
-hi
